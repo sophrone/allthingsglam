@@ -1,2 +1,2 @@
 # allthingsglam
-Your glam store for all things glam
+Your glam store for all things glamorous
